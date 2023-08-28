@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yassinsamir2011297
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Python language
+- 💞️ I’m looking to collaborate on my application.I wanna make my app to be one of the biggest apps in the world.
+- 📫 you can reach me through my Email which is (yasso10800@gmail.com)
